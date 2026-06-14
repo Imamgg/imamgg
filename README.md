@@ -1,1 +1,1 @@
-lupa cara ndoding
+lupa cara ngoding
